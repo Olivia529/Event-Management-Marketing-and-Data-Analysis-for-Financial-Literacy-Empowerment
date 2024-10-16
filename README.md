@@ -39,4 +39,4 @@ Across all three cities, the *Fueling Dreams, Building Wealth* tour reached a to
 Through this series of events, women in Dallas, Atlanta, and New York were given practical resources to build financial independence, contributing to long-term wealth creation in their communities.
 
 ## Conclusion
-*Fueling Dreams, Building Wealth* was more than just an event series—it was a movement to empower and uplift Black and Brown women entrepreneurs. The project successfully provided 265 women with the tools to create sustainable wealth, transforming lives and helping to close the resource gap in underserved communities.
+*Fueling Dreams, Building Wealth* was more than just an event series, it was a movement to empower and uplift Black and Brown women entrepreneurs. The project successfully provided 265 women with the tools to create sustainable wealth, transforming lives and helping to close the resource gap in underserved communities.
